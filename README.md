@@ -23,3 +23,5 @@ Ben moi dans mon futur je vois ... je vois ... du chocolat, des pâtes et des ch
 Ah bon ? Pourtant dans certaines culture (personne n'est ciblé),
 ça se fait ! Après, je doute que cela me plaise ! Mais on sait jamais!
 Bref, bonne journée!
+
+![Maximus](https://giphy.com/gifs/d7mMzaGDYkz4ZBziP6)
