@@ -24,4 +24,4 @@ Ah bon ? Pourtant dans certaines culture (personne n'est ciblé),
 ça se fait ! Après, je doute que cela me plaise ! Mais on sait jamais!
 Bref, bonne journée!
 
-![Maximus](https://giphy.com/gifs/d7mMzaGDYkz4ZBziP6)
+![Maximus](https://media1.giphy.com/media/d7mMzaGDYkz4ZBziP6/giphy.gif)
